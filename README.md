@@ -38,7 +38,7 @@
 
 ## 🌐 Connect with Me
 - 📧 Email: jasvanthimalai@gmail.com
-- 💼 LinkedIn:Jasvanthi Elumalai  
+- 💼 LinkedIn: https://linkedin.com/in/JasvanthiElumalai 
 
 ---
 
